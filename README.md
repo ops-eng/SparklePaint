@@ -33,11 +33,11 @@ Download now and turn every moment into a colorful adventure!
 
 ---
 
-![SparklePaint](images/1.png)
+![SparklePaint](images/2.png)
 
 ---
 
-![SparklePaint](images/1.png)
+![SparklePaint](images/3.png)
 
 
 ---
