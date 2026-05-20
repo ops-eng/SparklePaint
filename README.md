@@ -26,3 +26,18 @@ Made with love:
 - Designed by parents to help toddlers (ages 2–5) develop creativity, focus, and fine motor skills in a safe environment.
 
 Download now and turn every moment into a colorful adventure!
+
+---
+
+![SparklePaint](images/1.png)
+
+---
+
+![SparklePaint](images/1.png)
+
+---
+
+![SparklePaint](images/1.png)
+
+
+---
